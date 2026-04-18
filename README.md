@@ -14,4 +14,4 @@
 ![Shubham's GitHub stats](https://github-readme-stats.vercel.app/api?username=ShubhamRaj-57413&show_icons=true&theme=radical)
 
 ---
-📫 **How to reach me:** [Link your LinkedIn or Email here]
+📫 **How to reach me:** [www.linkedin.com/in/shubham-raj-635b93292]
